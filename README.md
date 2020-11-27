@@ -9,4 +9,3 @@ We eager to find excellent people to work with. Enthusiasm, positivy, cleverness
 # Sharing your video
 
 Once you have your video ready please share it to Jose Melendez at Jose.Melendez@focusservices.com so we can continue with the process.
-We're looking forward to get to know you!
